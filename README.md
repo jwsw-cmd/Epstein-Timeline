@@ -2,12 +2,6 @@
 
 Full timelines, allegations, DOJ EFTA file links, Jane Doe 129-file deep dive, Leon Black finances & lawsuit, Zorro Ranch burials, international probes, intelligence/kompromat claims, Grill Barry emails, Marius Fortelni passport & Q&A, gold smuggling, SEAL/Mexico City claim, and all original Google Doc content.
 
-⚠️Trigger warning⚠️
-Extremely graphic content (child abuse, rape, abortion, trauma, violence, strangulation, snuff allegations).
-
-# Images have been removed from this file for easier digestion. 
-
-# Find the available images in left column.
 
 ## 1. Full Chronological Timeline 
 
