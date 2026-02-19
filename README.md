@@ -5,6 +5,10 @@ Full timelines, allegations, DOJ EFTA file links, Jane Doe 129-file deep dive, L
 ⚠️Trigger warning⚠️
 Extremely graphic content (child abuse, rape, abortion, trauma, violence, strangulation, snuff allegations).
 
+# Images have been removed from this file for easier digestion. 
+
+# Find the available images in left column.
+
 ## 1. Full Chronological Timeline 
 
 - [1941-01-01] Fred Trump contributions to Jewish causes after US enters WWII to obfuscate German heritage and appear Jewish
