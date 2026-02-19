@@ -2,9 +2,9 @@
 
 [https://www.justice.gov/epstein/files/DataSet%209/EFTA00263405.pdf](https://www.justice.gov/epstein/files/DataSet%209/EFTA00263405.pdf)
 
-# 25% of this information was unredacted by several different people across the web.
+25% of this information was unredacted by several different people across the web.
 
-# For their protection, their identities will not be released.
+For their protection, their identities will not be released.
 
 **This summary details exactly where we are based on the evidence currently available.**
 
