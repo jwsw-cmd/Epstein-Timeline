@@ -6,6 +6,13 @@ Below is the organized, verified narrative of the Epstein operation built from t
 This is a living database. I need people to help get me accurate links to add to this database so it gets all the updates. Also, more information or potential threads to open up. This will be constantly updated.  If something is inaccurate, fake, or disinformation, please let me know\!   
 **This summary details exactly where we are based on the evidence currently available.**
 
+⚠️Trigger warning⚠️
+Extremely graphic content (child abuse, rape, abortion, trauma, violence, strangulation, snuff allegations).
+
+# Images have been removed from this file for easier digestion. 
+
+# Find the available images in left column.
+
 # **EXECUTIVE SUMMARY: Current State of the Evidence (2/13)**
 
 The current evidence proves that Jeffrey Epstein was not a "lone wolf trafficking to himself."   
