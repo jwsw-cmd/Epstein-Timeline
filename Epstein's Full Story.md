@@ -2,8 +2,10 @@
 
 [https://www.justice.gov/epstein/files/DataSet%209/EFTA00263405.pdf](https://www.justice.gov/epstein/files/DataSet%209/EFTA00263405.pdf)
 
-Below is the organized, verified narrative of the Epstein operation built from the hard data found in the file dumps and news stories surrounding Epstein. This database connects the pieces to show the crimes and active systemic cover-up protecting the perpetrators.  
-This is a living database. I need people to help get me accurate links to add to this database so it gets all the updates. Also, more information or potential threads to open up. This will be constantly updated.  If something is inaccurate, fake, or disinformation, please let me know\!   
+# 25% of this information was unredacted by several different people across the web.
+
+# For their protection, their identities will not be released.
+
 **This summary details exactly where we are based on the evidence currently available.**
 
 ⚠️Trigger warning⚠️
