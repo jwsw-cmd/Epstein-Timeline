@@ -168,7 +168,7 @@ International investigations (2026 fallout): New Mexico, UK, France, Norway, Ger
 - Redacted lists EFTA02731521 & EFTA02731688
 - Other victims/emails EFTA02731643/44/46/55/87/31687/31729
 
-**Full Email Chronology Table** (as you provided):
+**Full Email Chronology Table**:
 
 | EFTA          | Description                                      | Date          |
 |---------------|--------------------------------------------------|---------------|
