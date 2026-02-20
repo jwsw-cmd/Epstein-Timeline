@@ -519,7 +519,7 @@ from a recruiter ("Tiffany Doe") claiming to have procured victims for Donald Tr
 
 [https://cdn.factcheck.org/UploadedFiles/Johnson\_TrumpEpstein\_Lawsuit.pdf](https://cdn.factcheck.org/UploadedFiles/Johnson_TrumpEpstein_Lawsuit.pdf)
 
-\# ALLEGATIONS OF EXTREME DEPRAVITY, ASSAULTS & MURDER
+# ALLEGATIONS OF EXTREME DEPRAVITY, ASSAULTS & MURDER
 
 Many of the following are extreme allegations, some coming from anonymous tips and whatnot so take with a grain of salt. It is notable to mention that just 2 months before this latest release that revealed allegatings of things beyond rape such as torture and murder, \[Iraq Veteran William Sascha Riley\]
 
@@ -692,7 +692,7 @@ Alan was also part of the legal team that negotiated a non-prosecution agreement
 
 [https://www.timesofisrael.com/alan-dershowitz-defends-helping-jeffrey-epstein-secure-controversial-plea-deal/amp/](https://www.timesofisrael.com/alan-dershowitz-defends-helping-jeffrey-epstein-secure-controversial-plea-deal/amp/)
 
-Alan & Epstein’s timeline:
+# Alan & Epstein’s timeline:
 
 [https://unprecedented.ghost.io/archive/a-dershowitz-epstein-timeline/](https://unprecedented.ghost.io/archive/a-dershowitz-epstein-timeline/)
 
@@ -733,7 +733,7 @@ EFTA00129096
 [https://www.justice.gov/epstein/files/DataSet%209/EFTA00129096.pdf](https://www.justice.gov/epstein/files/DataSet%209/EFTA00129096.pdf)  
 Why do we have to worry about POTUS being compromised by somebody who blackmailed like epstein?
 
-Steve bannon 
+# Steve bannon 
 
 [https://www.mediaite.com/online/alan-dershowitz-lashes-out-at-miami-herald-epstein-reporting-and-calls-on-pulitzer-committee-to-ignore-it/](https://www.mediaite.com/online/alan-dershowitz-lashes-out-at-miami-herald-epstein-reporting-and-calls-on-pulitzer-committee-to-ignore-it/)
 
