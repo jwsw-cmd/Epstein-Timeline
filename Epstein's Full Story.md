@@ -348,68 +348,68 @@ and others beginning \[when she was 5 years old.\]
 
 [https://dn720004.ca.archive.org/0/items/efta-02731260-redacted\_20260208/EFTA02731260%20Redacted.pdf](https://dn720004.ca.archive.org/0/items/efta-02731260-redacted_20260208/EFTA02731260%20Redacted.pdf)
 
-(https://www.justice.gov/epstein/files/DataSet%208/EFTA00014648.pdf)
+[https://www.justice.gov/epstein/files/DataSet%208/EFTA00014648.pdf)
 
-(https://www.justice.gov/epstein/files/DataSet%209/EFTA00090028.pdf)
+[https://www.justice.gov/epstein/files/DataSet%209/EFTA00090028.pdf)
 
 "Take clothes off to get more money"
 
-(https://www.justice.gov/epstein/files/DataSet%2010/EFTA01702517.pdf)
+[https://www.justice.gov/epstein/files/DataSet%2010/EFTA01702517.pdf)
 
 
-(https://www.justice.gov/epstein/files/DataSet%209/EFTA00085291.pdf)
+[https://www.justice.gov/epstein/files/DataSet%209/EFTA00085291.pdf)
 
-(https://www.justice.gov/epstein/files/DataSet%209/EFTA00080984.pdf)
+[https://www.justice.gov/epstein/files/DataSet%209/EFTA00080984.pdf)
 
-(https://www.justice.gov/epstein/files/DataSet%209/EFTA01248647.pdf)
+[https://www.justice.gov/epstein/files/DataSet%209/EFTA01248647.pdf)
 
-(https://www.justice.gov/epstein/files/DataSet%209/EFTA00536538.pdf)
+[https://www.justice.gov/epstein/files/DataSet%209/EFTA00536538.pdf)
 
 “Models”
 
-(https://www.justice.gov/epstein/files/DataSet%2010/EFTA01990178.pdf)
+[https://www.justice.gov/epstein/files/DataSet%2010/EFTA01990178.pdf)
 
-(https://www.justice.gov/epstein/files/DataSet%2011/EFTA02431783.pdf)
+[https://www.justice.gov/epstein/files/DataSet%2011/EFTA02431783.pdf)
 
 “Cleaning with the girls”
 
-(https://www.justice.gov/epstein/files/DataSet%2010/EFTA02065297.pdf)
+[https://www.justice.gov/epstein/files/DataSet%2010/EFTA02065297.pdf)
 
 “Hasty Pudding Invite”
 
-(https://www.justice.gov/epstein/files/DataSet%2011/EFTA02720266.pdf)
+[https://www.justice.gov/epstein/files/DataSet%2011/EFTA02720266.pdf)
 
 “Cleaning of the girls apartments”
 
-(https://www.justice.gov/epstein/files/DataSet%2010/EFTA02191603.pdf)
+[https://www.justice.gov/epstein/files/DataSet%2010/EFTA02191603.pdf)
 
 “Paris”? - Shows how well connected he is
 
-(https://www.justice.gov/epstein/files/DataSet%209/EFTA00561887.pdf)
+[https://www.justice.gov/epstein/files/DataSet%209/EFTA00561887.pdf)
 
 “Bring 3 friends”
 
-(https://www.justice.gov/epstein/files/DataSet%2010/EFTA02046195.pdf)
+[https://www.justice.gov/epstein/files/DataSet%2010/EFTA02046195.pdf)
 
 “Woody Allen’s daughter’s 14 years old friend”
 
-(https://www.justice.gov/epstein/files/DataSet%2010/EFTA02144544.pdf)
+[https://www.justice.gov/epstein/files/DataSet%2010/EFTA02144544.pdf)
 
 Google
 
-(https://www.justice.gov/epstein/files/DataSet%209/EFTA00170255.pdf)
+[https://www.justice.gov/epstein/files/DataSet%209/EFTA00170255.pdf)
 
 Microsoft
 
-(https://www.justice.gov/epstein/files/DataSet%209/EFTA00635715.pdf)
+[https://www.justice.gov/epstein/files/DataSet%209/EFTA00635715.pdf)
 
 # John
 
-(https://www.justice.gov/epstein/files/DataSet%209/EFTA00159909.pdf)
+[https://www.justice.gov/epstein/files/DataSet%209/EFTA00159909.pdf)
 
 # Bill & Hillary Clinton
 
-(https://www.justice.gov/epstein/files/DataSet%209/EFTA00086363.pdf)
+[https://www.justice.gov/epstein/files/DataSet%209/EFTA00086363.pdf)
 
 
 16 deleted PDFS. These were part of Data Set 9 and quickly removed by the DoJ. I don't know what has or hasn't been seen yet, but the bulk of this is prison documents from around the time of his death, and there are also thousands of pages of case files and statements from the original 2005 era case where 19 underage girls accused him of rape. 
